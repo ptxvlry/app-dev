@@ -8,6 +8,9 @@ Music is one of my favorite things because it helps me relax, feel happy, and ex
 - Pop
 - R&B
 - OPM
+
+### Why I Like Listening to Music
+I enjoy listening to music during my free time because it helps me reduce stress and improve my mood.
 - Worships
 
 
